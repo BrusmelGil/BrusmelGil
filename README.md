@@ -1,5 +1,3 @@
-
-
 ![2880a77056e5dce8bf5495afdf8b8045](https://github.com/BrusmelGil/BrusmelGil/assets/144242787/03bb67cc-3144-49c8-8530-7ce404d01b88)
 
 
